@@ -1,2 +1,2 @@
 # TerraNova
-# PLease wait until website is back on
+# Please wait until website is back on
